@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Gracesk2
+- 👀 I’m interested in many things
+- 🌱 I’m currently learning java script
+- 💞️ Feel free to contact me.
+- 📫 Contact me on Discord: Gracesk Cat#3385
